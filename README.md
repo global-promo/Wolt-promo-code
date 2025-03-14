@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html lang="en">
 <body>
-        <h1>Unlock Savings with a Wolt Promo Code: Guide to Using 7QK5E7W</h1>
+        <h1>Unlock 15 Euro with the Wolt Promo Code 7QK5E7W</h1>
   <img src="https://miro.medium.com/v2/resize:fit:750/format:webp/1*ZvF3te6Eqp6sa44ag97PXA.png" alt="wolt promo code">
         <h2>Key Points</h2>
         <ul>
